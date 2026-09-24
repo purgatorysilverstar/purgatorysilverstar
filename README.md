@@ -3,37 +3,44 @@
 ![GIF image](https://github.com/user-attachments/assets/f95618da-40df-41f2-9891-28a6376cbb83)
 
 
--hello! im clay,i made this acc specifically for PonyTown so bare that in mind! youll usually find me sitting around the spawn area.
+-hello! im clay, im 18 y/o and from the UK!! I made this acc specifically for Pony Town so bare that in mind! you'll usually find me sitting mostly around the spawn area.
 
--Do feel free to come say hi!! interaction is highly encouraged, i dont bite i swear im friendly
+feel free to come up and say hello / chat to me, if i dont respond or whatnot please please please send me a whisper and ill get back to you eventually
 
--if i dont respond i HIGHLY recommend you leave a whisper, i *will* respond to you eventually!!
+## Get to know me!
+  ╰┈➤ im big into astronomy, astrophotography, Project Hail Mary and various other space related medias as well as a HUGE GIF enjoyer, i loooove decorating my profiles theyre basically an extension of me. im currently super duper into the MCU at the moment so expect a ton of mcu ponies from me
+
+ <p align="center">
+<img width="50" height="50" alt="globe6" src="https://github.com/user-attachments/assets/38bd202b-e84b-44e8-a837-1e2719e85cf2" />
+  </a>
+</p>
 
 
-![GIF image](https://github.com/user-attachments/assets/5a81fe41-fc58-418b-a0f4-48dccef05e52)
-![_com apple Pasteboard mCsYxb](https://github.com/user-attachments/assets/d6ef0fc7-bbee-4bbd-b2f8-f05cacca0e15)
 
 <p align="center">
  ☄︎₊˚⊹☆
   </a>
 </p>
 
+i also have a [letterboxd](https://boxd.it/ezoQR) if any of you are interested in following that! im always on the hunt for new movie-loving mutuals ;p
+<p align="center">
+<img width="150" height="20" alt="letterboxd-blinkie" src="https://github.com/user-attachments/assets/3b1337d7-04dc-4f68-85e0-5bcb2820315c" />
+
+  </a>
+</p>
 
 
-(!!THE REST OF THIS IS MY BLINKIE DUMP!!)
 
 # RELEASE THE BLINKIES
 
 
 ![GIF image](https://github.com/user-attachments/assets/7ee0a96e-0827-4e7f-9750-ee6d913793c5)
 ![GIF image](https://github.com/user-attachments/assets/fb493501-3074-4b5c-8f7b-79b287f77693)
-![GIF image](https://github.com/user-attachments/assets/0883448e-7920-4d51-90a1-e84536f5fb08)
 ![GIF image](https://github.com/user-attachments/assets/4318fb92-0f31-4a3f-8faa-bbd0a2b264f7)
 ![GIF image](https://github.com/user-attachments/assets/73deb179-f212-4929-9ad5-c28f1cf68d56)
 ![GIF image](https://github.com/user-attachments/assets/3205f8f1-42e0-48eb-ab9b-8b2881dd7b76)
 ![GIF image](https://github.com/user-attachments/assets/304fc3ec-b84d-40ac-ab1e-1b7625733e02)
 ![GIF image](https://github.com/user-attachments/assets/f63daed2-8dab-47d7-bdb3-468e298a5b55)
-![GIF image](https://github.com/user-attachments/assets/f796a44e-b536-4241-8b3f-7c552e17ab05)
 ![GIF image](https://github.com/user-attachments/assets/5dd0a704-15ab-4d55-8a7b-038b206afd9a)
 ![GIF image](https://github.com/user-attachments/assets/b22c9934-884a-445b-a2cf-21adc39f4035)
 ![GIF image](https://github.com/user-attachments/assets/f6862a9d-ca54-47ac-a8e7-7920f6eb7490)
@@ -54,16 +61,21 @@
 ![GIF image](https://github.com/user-attachments/assets/6524fe24-272e-4960-8786-f957a47a850f)
 ![GIF image](https://github.com/user-attachments/assets/7b3fa441-dd4c-4f14-9471-19ab82f0badd)
 ![GIF image](https://github.com/user-attachments/assets/6c7cd7b3-05c4-4fe1-9096-f4ffe1f0d51b)
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/182e9a89-5a08-41a7-8f6e-fff688865630"/>
 ![GIFimage](https://github.com/user-attachments/assets/fc5b0103-e3a8-4e4a-8656-70930bb8d42e)
 ![GIF image](https://github.com/user-attachments/assets/6c8914af-edfa-43d8-8f31-b75e2b2d3f56)
 ![GIF image](https://github.com/user-attachments/assets/9cb1af1f-fcbc-48df-93c9-687f56420d10)
-![GIF image](https://github.com/user-attachments/assets/cc889dcb-0603-44e0-b96e-8c011c7fb47f)
-![GIF image](https://github.com/user-attachments/assets/30b57b67-f001-4989-9952-cbfcd56db4f7)
-![GIF image](https://github.com/user-attachments/assets/8f187bbe-5165-421a-81ca-7f2dd4d611e3)
-![GIF image](https://github.com/user-attachments/assets/d8160fca-b3c9-4531-98b8-cf892949c4fc)
-<img width="99" height="55" alt="PNG image" src="https://github.com/user-attachments/assets/b4755a01-efd0-4191-8816-20bdc4f8e117" />
 ![image](https://github.com/user-attachments/assets/7bdc1ca6-7950-4f72-9219-540c50b3e635)
 ![GIF image](https://github.com/user-attachments/assets/7204eb66-e006-47a0-afe8-b900e27e6738)
+<img width="99" height="56" alt="stamp (3)" src="https://github.com/user-attachments/assets/2a7a0e32-5248-43f3-bcc7-1fccf17c7fe0" />
+<img width="99" height="56" alt="davelister-arnoldrimmer" src="https://github.com/user-attachments/assets/3c19ebff-dfeb-4b55-9f4f-0ed7f4d2aa6c" />
+<img width="101" height="57" alt="stamp (1)" src="https://github.com/user-attachments/assets/73040aea-9119-4b11-9339-42f92eaaf665" />
+<img width="99" height="56" alt="IMG_3582" src="https://github.com/user-attachments/assets/281f6ae8-eac5-43d5-83a3-28bbd0d32653" />
+<img width="99" height="56" alt="IMG_3581" src="https://github.com/user-attachments/assets/abc5d4b7-4454-4c2a-8703-6cf0255643bf" />
+<img width="100" height="55" alt="IMG_0402" src="https://github.com/user-attachments/assets/54d0cd88-595a-47d5-aeea-1647273ee2db" />
+<img width="99" height="56" alt="stamp (7)" src="https://github.com/user-attachments/assets/55453792-02ac-4f23-9204-95f9419de118" />
 
 
+<p align="center">
+ <img width="400" height="180" alt="IMG_0448" src="https://github.com/user-attachments/assets/d92c5529-c078-4c9b-a52e-55f5b9260614" />
+   </a>
+</p>
