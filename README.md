@@ -8,7 +8,7 @@
 feel free to come up and say hello / chat to me, if i dont respond or whatnot please please please send me a whisper and ill get back to you eventually
 
 ## Get to know me!
-  ╰┈➤ im big into astronomy, astrophotography, Project Hail Mary and various other space related medias as well as a HUGE GIF enjoyer, i loooove decorating my profiles theyre basically an extension of me. im currently super duper into the MCU at the moment so expect a ton of mcu ponies from me
+  ╰┈➤ im big into astronomy, astrophotography, Project Hail Mary and various other space related medias as well as a HUGE GIF enjoyer, i loooove decorating my profiles theyre basically an extension of me
 
  <p align="center">
 <img width="50" height="50" alt="globe6" src="https://github.com/user-attachments/assets/38bd202b-e84b-44e8-a837-1e2719e85cf2" />
