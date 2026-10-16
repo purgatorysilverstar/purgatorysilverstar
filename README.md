@@ -1,21 +1,19 @@
-![GIF image](https://github.com/user-attachments/assets/d3aaca53-655f-4a12-ae62-4bbe4ba246a4) <img width="88" height="31" alt="PNG image" src="https://github.com/user-attachments/assets/d3d1e686-9f99-47c8-958d-e4738eedf352" />
+<p align="center">
+<img width="800" height="332" alt="sambucky2" src="https://github.com/user-attachments/assets/c129849a-b60a-4205-8a69-5eb00adaaec9"/>
+    </a>
+</p>
 
-![GIF image](https://github.com/user-attachments/assets/f95618da-40df-41f2-9891-28a6376cbb83)
-
-
--hello! im clay, im 18 y/o and from the UK!! I made this acc specifically for Pony Town so bare that in mind! you'll usually find me sitting mostly around the spawn area.
+-hello! im clay, im 18 y/o and from the UK!! I made this acc specifically for Pony Town so bare that in mind! you'll usually find me sitting mostly around the spawn area. this page is best viewed on laptop, sorry mobile users
 
 feel free to come up and say hello / chat to me, if i dont respond or whatnot please please please send me a whisper and ill get back to you eventually
 
 ## Get to know me!
-  ╰┈➤ im big into astronomy, astrophotography, Project Hail Mary and various other space related medias as well as a HUGE GIF enjoyer, i loooove decorating my profiles theyre basically an extension of me
+  ╰┈➤ im big into astronomy, astrophotography and various other space related medias as well as a HUGE GIF enjoyer, i loooove decorating my profiles theyre basically an extension of me
 
  <p align="center">
 <img width="50" height="50" alt="globe6" src="https://github.com/user-attachments/assets/38bd202b-e84b-44e8-a837-1e2719e85cf2" />
   </a>
 </p>
-
-
 
 <p align="center">
  ☄︎₊˚⊹☆
@@ -25,13 +23,15 @@ feel free to come up and say hello / chat to me, if i dont respond or whatnot pl
 i also have a [letterboxd](https://boxd.it/ezoQR) if any of you are interested in following that! im always on the hunt for new movie-loving mutuals ;p
 <p align="center">
 <img width="150" height="20" alt="letterboxd-blinkie" src="https://github.com/user-attachments/assets/3b1337d7-04dc-4f68-85e0-5bcb2820315c" />
-
   </a>
 </p>
 
+# DNI Criteria:
+## heavy DNI, do *not* talk to me at all;
+MAGA, Transphobes, Homophobes, Fascists, Zionists, N@zis, Predators/Pedophiles/MAP, Proshippers, Darkshippers, RadQueers, BoneHeads, Far Right supporters/Extremists et cetera.
 
 
-# RELEASE THE BLINKIES
+# My Blinkie Collection
 
 
 ![GIF image](https://github.com/user-attachments/assets/7ee0a96e-0827-4e7f-9750-ee6d913793c5)
@@ -63,7 +63,6 @@ i also have a [letterboxd](https://boxd.it/ezoQR) if any of you are interested i
 ![GIF image](https://github.com/user-attachments/assets/6c7cd7b3-05c4-4fe1-9096-f4ffe1f0d51b)
 ![GIFimage](https://github.com/user-attachments/assets/fc5b0103-e3a8-4e4a-8656-70930bb8d42e)
 ![GIF image](https://github.com/user-attachments/assets/6c8914af-edfa-43d8-8f31-b75e2b2d3f56)
-![GIF image](https://github.com/user-attachments/assets/9cb1af1f-fcbc-48df-93c9-687f56420d10)
 ![image](https://github.com/user-attachments/assets/7bdc1ca6-7950-4f72-9219-540c50b3e635)
 ![GIF image](https://github.com/user-attachments/assets/7204eb66-e006-47a0-afe8-b900e27e6738)
 <img width="99" height="56" alt="stamp (3)" src="https://github.com/user-attachments/assets/2a7a0e32-5248-43f3-bcc7-1fccf17c7fe0" />
