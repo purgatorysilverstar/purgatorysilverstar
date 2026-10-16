@@ -43,7 +43,7 @@ Gemini Home Entertainment, Vita Carnis, Local 58, Weird Birds, Hollow Birds, Mid
 Still Wakes the Deep, The Stanley Parable, Quarantine Zone, Scrutinzed, **_SOME_** Poppy Playtime, Five Nights at Freddys etc
 
 ### also plsplspls talk to me if you like the following ships
-<ins>Sambucky</ins>!!!!, Stony/ SteveTony, Lokius, Jedtavius, CapHavers, Grocky/GraceRocky/Grockadrian/GraceRockyAdrian, Reddie, Stannarrator, Azriacrow/ineffable husbands, Pepperony/ PepperTony, 
+<ins>Sambucky</ins>!!!!, Stony/ SteveTony, Lokius, Jedtavius, CapHavers, Grocky/GraceRocky/Grockadrian/GraceRockyAdrian, Reddie, Stannarrator, Aziracrow/ineffable husbands, Pepperony/PepperTony, Cherik
 
 # My Blinkie Collection
 
