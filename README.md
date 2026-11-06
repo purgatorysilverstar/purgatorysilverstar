@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">  
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Merriweather&size=11&duration=5016&pause=1000&color=407131A9&center=true&vCenter=true&width=435&lines=%22When+he+died%2C+all+things+soft+and+beautiful+and+bright+would+be+buried+with+him.%22" alt="Typing SVG" /></a>
+<a><img src="https://readme-typing-svg.herokuapp.com?font=Merriweather&size=11&duration=5016&pause=1000&color=407131A9&center=true&vCenter=true&width=435&lines=%22When+he+died%2C+all+things+soft+and+beautiful+and+bright+would+be+buried+with+him.%22" alt="Typing SVG" /></a>
     </a>
 </p>
 
@@ -21,4 +21,3 @@
 C+H is encouraged! Please please talk to me and whispers are also welcomed!!</br> You'll usually find me around spawn, near the cafe and/or sitting with friends.
     </a>
 </p>
-
